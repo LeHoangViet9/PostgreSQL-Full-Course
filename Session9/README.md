@@ -1,1 +1,1 @@
-Hệ thống kiến thức session 7 và session 
+Hệ thống kiến thức session 7 và session 8
